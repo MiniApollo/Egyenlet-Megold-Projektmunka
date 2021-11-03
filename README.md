@@ -1,0 +1,1 @@
+# Egyenlet-Megold-Projektmunka
